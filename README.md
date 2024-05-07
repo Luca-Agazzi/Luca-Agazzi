@@ -13,9 +13,9 @@ The projects I've worked on and continue to pursue revolve around my personal in
 # Additional Information
 
 Apart from my academic and professional interests, I also enjoy:
-- Playing chess (mostly online on Lichess, few times OTB)
+- Playing chess (both online and OTB, 1650+ FIDE)
 - Football (supporter of FC Barcelona)
-- Traveling (I've been to 10+ countries)
+- Traveling (I've been to 13 countries so far)
 - Geography
 
 # Contact Me
