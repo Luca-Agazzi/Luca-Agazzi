@@ -16,6 +16,7 @@ Apart from my academic and professional interests, I also enjoy:
 - Playing chess (both online and OTB, 1650+ FIDE)
 - Football (supporter of FC Barcelona)
 - Traveling (I've been to 13 countries so far)
+- Swimming
 - Geography
 
 # Contact Me
